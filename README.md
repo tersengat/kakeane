@@ -1,0 +1,2 @@
+# kakeane
+Zima může být obdobím, kdy mnoho jedinců přestává přibírat na váze a cítí se sklíčení. Ukázalo se, že někteří jedinci zažívají mizerný zmatek. Mizerný příležitostný emocionální problém způsobuje, že se jednotlivci cítí sklíčení a je o ně postaráno, jak jen je to možné, dokud se povětrnostní podmínky znovu nezačnou zlepšovat. To kvůli raně nakreslenému šeru a sklonu, jako je den, nikdy netrval tak dlouho.  Abyste zabránili odhalení v této pasti, opravdu se chcete připravit na zimu.
